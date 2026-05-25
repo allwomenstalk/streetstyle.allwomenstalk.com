@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many ways that you can look
 
 ## Related Posts
 
-- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
-- [pastel hair dye](https://hair.allwomenstalk.com/awesome-pastel-hair-colors-to-try-out-this-summer/)
-- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
-- [rockin hair](https://hair.allwomenstalk.com/rockin-hair-accessories-for-summer/)
-- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
-- [rock band outfits female](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-rocker-chic-this-summer/)
-- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
 - [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
+- [rock band outfits female](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-rocker-chic-this-summer/)
+- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
+- [pastel hair dye](https://hair.allwomenstalk.com/awesome-pastel-hair-colors-to-try-out-this-summer/)
+- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
 - [gwen stefani street style](https://celebs.allwomenstalk.com/celebrity-summer-street-style-inspirations-that-are-absolutely-beautiful/)
+- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
+- [rockin hair](https://hair.allwomenstalk.com/rockin-hair-accessories-for-summer/)
 - [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
 - [7 Stylish Ways to Wear Your Hair This Summer ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-summer/)
 - [7 Hairstyles to Try This Summer ...](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
 

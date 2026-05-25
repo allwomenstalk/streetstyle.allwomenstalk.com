@@ -68,16 +68,16 @@ These are just a few street-style inspired ways to wear your denim shorts. Which
 
 ## Related Posts
 
-- [20s clothing style](https://fashion.allwomenstalk.com/fashion-tips-for-a-1920s-look/)
-- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
-- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
-- [how to cut a shirt to make it cute](https://diy.allwomenstalk.com/cute-ways-to-embellish-a-shirt/)
-- [street style kate moss](https://fashion.allwomenstalk.com/fabulous-ways-to-dress-like-kate-moss/)
-- [selena gomez cross necklace](https://diy.allwomenstalk.com/ways-to-diy-and-steal-selena-gomezs-bohemian-style/)
-- [jackets to wear with overalls](https://streetstyle.allwomenstalk.com/fabulous-street-style-ways-to-wear-overalls/)
 - [dress less](https://fashion.allwomenstalk.com/ways-to-dress-for-less/)
-- [white pants and shoes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-white-pants/)
+- [20s clothing style](https://fashion.allwomenstalk.com/fashion-tips-for-a-1920s-look/)
+- [how to cut a shirt to make it cute](https://diy.allwomenstalk.com/cute-ways-to-embellish-a-shirt/)
 - [it jeans dream diva](https://fashion.allwomenstalk.com/ways-to-rock-high-waisted-jeans/)
+- [jackets to wear with overalls](https://streetstyle.allwomenstalk.com/fabulous-street-style-ways-to-wear-overalls/)
+- [selena gomez cross necklace](https://diy.allwomenstalk.com/ways-to-diy-and-steal-selena-gomezs-bohemian-style/)
+- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
+- [white pants and shoes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-white-pants/)
+- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
+- [street style kate moss](https://fashion.allwomenstalk.com/fabulous-ways-to-dress-like-kate-moss/)
 - [7 Ways to Wear Red Denim ...](https://fashion.allwomenstalk.com/ways-to-wear-red-denim/)
 - [7 Stylish Ways to Wear Denim Cutoffs ...](https://fashion.allwomenstalk.com/stylish-ways-to-wear-denim-cutoffs/)
 

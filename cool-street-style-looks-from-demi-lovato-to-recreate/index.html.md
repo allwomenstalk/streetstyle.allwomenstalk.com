@@ -54,16 +54,16 @@ Well, there you have it! These are just seven out of many cool looks from Demi L
 
 ## Related Posts
 
-- [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
-- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
-- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
-- [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
 - [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
+- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
+- [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
+- [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
+- [emma roberts look](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-emma-roberts/)
+- [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
 - [preppy tv shows](https://movies.allwomenstalk.com/fashionable-tv-shows-every-fashionista-needs-to-be-watching/)
 - [kate middleton best outfits](https://fashion.allwomenstalk.com/of-kate-middletons-best-outfits-from-the-royal-tour/)
-- [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
-- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
-- [emma roberts look](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-emma-roberts/)
+- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
 - [10 Cool Celebrity Street Style Looks ...](https://celebs.allwomenstalk.com/cool-celebrity-street-style-looks/)
 - [7 Inspirational Street Style Ideas for Spring ...](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 

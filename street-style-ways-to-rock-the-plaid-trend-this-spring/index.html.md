@@ -55,15 +55,15 @@ Well, there you have it! These are just seven out of many awesome ways that you 
 ## Related Posts
 
 - [pop rock outfit ideas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-denim-shorts-to-recreate/)
-- [shoes to wear with long socks](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-knee-high-socks/)
-- [cool street style](https://streetstyle.allwomenstalk.com/cool-street-style-ways-to-mix-and-match-patterns/)
-- [clothing embellishments ideas](https://fashion.allwomenstalk.com/ways-to-add-embellishments-to-your-spring-wardrobe/)
-- [diy creative jeans](https://diy.allwomenstalk.com/ways-to-update-old-jeans/)
-- [minimalist trend](https://fashion.allwomenstalk.com/ways-to-master-the-minimalist-trend/)
-- [fashion trends 80s](https://fashion.allwomenstalk.com/ways-to-wear-80s-fashion-trends-in-a-modern-way/)
-- [green top white pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-white-pants-this-spring/)
-- [preppy schoolgirl outfit](https://fashion.allwomenstalk.com/grown-up-ways-to-wear-the-preppy-trend/)
 - [how to wear a crop top if youre curvy](https://fashion.allwomenstalk.com/tips-on-how-to-wear-crop-tops-no-matter-what-your-body-shape/)
+- [preppy schoolgirl outfit](https://fashion.allwomenstalk.com/grown-up-ways-to-wear-the-preppy-trend/)
+- [fashion trends 80s](https://fashion.allwomenstalk.com/ways-to-wear-80s-fashion-trends-in-a-modern-way/)
+- [diy creative jeans](https://diy.allwomenstalk.com/ways-to-update-old-jeans/)
+- [shoes to wear with long socks](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-knee-high-socks/)
+- [minimalist trend](https://fashion.allwomenstalk.com/ways-to-master-the-minimalist-trend/)
+- [green top white pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-white-pants-this-spring/)
+- [clothing embellishments ideas](https://fashion.allwomenstalk.com/ways-to-add-embellishments-to-your-spring-wardrobe/)
+- [cool street style](https://streetstyle.allwomenstalk.com/cool-street-style-ways-to-mix-and-match-patterns/)
 - [7 Ways to Wear Spring Fashion Trends Now ...](https://fashion.allwomenstalk.com/ways-to-wear-spring-fashion-trends-now/)
 - [7 Street Style Trends for Spring 2013 ...](https://fashion.allwomenstalk.com/street-style-trends-for-spring/)
 

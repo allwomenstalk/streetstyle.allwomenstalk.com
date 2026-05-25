@@ -50,16 +50,16 @@ Well, there you have it! These are just seven out of many awesome ways to incorp
 
 ## Related Posts
 
-- [le smoky shadow skirt](https://fashion.allwomenstalk.com/clever-clothing-tricks-that-will-give-you-curves/)
-- [pregnancy clothes must haves](https://fashion.allwomenstalk.com/must-have-basic-clothing-pieces-for-pregnant-women/)
-- [breast cancer walk outfit ideas](https://streetstyle.allwomenstalk.com/adorable-overall-outfit-ideas-to-recreate/)
 - [reason not to worry](https://fashion.allwomenstalk.com/reasons-not-to-worry-about-fashion/)
-- [skirt and graphic tee outfit](https://streetstyle.allwomenstalk.com/awesome-graphic-pencil-skirt-outfits-to-recreate/)
 - [victoria secret pink and white striped pajamas](https://fashion.allwomenstalk.com/cute-pajamas-youll-never-want-to-take-off/)
+- [fruit print shorts](https://fashion.allwomenstalk.com/fruit-inspired-fashions-youll-want-to-serve-up-with-your-outfits/)
 - [chambray fashion](https://fashion.allwomenstalk.com/chambray-clothes-that-are-perfect-for-creating-casually-chic-looks/)
 - [what to wear for a portrait](https://parenting.allwomenstalk.com/stylish-kids-outfits-for-your-next-portrait-session/)
+- [pregnancy clothes must haves](https://fashion.allwomenstalk.com/must-have-basic-clothing-pieces-for-pregnant-women/)
+- [breast cancer walk outfit ideas](https://streetstyle.allwomenstalk.com/adorable-overall-outfit-ideas-to-recreate/)
+- [skirt and graphic tee outfit](https://streetstyle.allwomenstalk.com/awesome-graphic-pencil-skirt-outfits-to-recreate/)
 - [teenage wardrobe](https://fashion.allwomenstalk.com/clothing-items-every-teen-should-have-in-her-closet/)
-- [fruit print shorts](https://fashion.allwomenstalk.com/fruit-inspired-fashions-youll-want-to-serve-up-with-your-outfits/)
+- [le smoky shadow skirt](https://fashion.allwomenstalk.com/clever-clothing-tricks-that-will-give-you-curves/)
 - [7 Inspirational Street Style Ideas for Spring ...](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [7 Fabulous Ways to Wear Camo This Summer ...](https://fashion.allwomenstalk.com/fabulous-ways-to-wear-camo-this-summer/)
 

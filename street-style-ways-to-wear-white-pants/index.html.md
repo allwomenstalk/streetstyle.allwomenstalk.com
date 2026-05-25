@@ -68,16 +68,16 @@ These are just a few different ways that we’ve seen white pants being styled. 
 
 ## Related Posts
 
-- [it jeans dream diva](https://fashion.allwomenstalk.com/ways-to-rock-high-waisted-jeans/)
-- [how to learn to make your own clothes](https://diy.allwomenstalk.com/tips-for-making-your-own-clothes/)
-- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
-- [street style kate moss](https://fashion.allwomenstalk.com/fabulous-ways-to-dress-like-kate-moss/)
-- [street makeup look](https://streetstyle.allwomenstalk.com/eye-catching-colourful-street-style-looks-you-can-recreate/)
-- [how to wear a midi skirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-midi-skirt/)
-- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
-- [leapord print pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leopard-print-like-a-wild-cat/)
-- [fearne cotton wedding dress copy](https://fashion.allwomenstalk.com/fearne-cotton-looks-that-you-need-to-copy/)
 - [how to add more color to your wardrobe](https://fashion.allwomenstalk.com/fashiontastic-ways-to-add-blue-to-your-wardrobe/)
+- [how to learn to make your own clothes](https://diy.allwomenstalk.com/tips-for-making-your-own-clothes/)
+- [street makeup look](https://streetstyle.allwomenstalk.com/eye-catching-colourful-street-style-looks-you-can-recreate/)
+- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
+- [how to wear a midi skirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-midi-skirt/)
+- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
+- [fearne cotton wedding dress copy](https://fashion.allwomenstalk.com/fearne-cotton-looks-that-you-need-to-copy/)
+- [it jeans dream diva](https://fashion.allwomenstalk.com/ways-to-rock-high-waisted-jeans/)
+- [leapord print pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leopard-print-like-a-wild-cat/)
+- [street style kate moss](https://fashion.allwomenstalk.com/fabulous-ways-to-dress-like-kate-moss/)
 - [7 Essential Ways to Wear White This Spring ...](https://fashion.allwomenstalk.com/essential-ways-to-wear-white-this-spring/)
 - [8 Ways to Wear White ...](https://allwomenstalk.com/8-ways-to-wear-white/)
 

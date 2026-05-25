@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many awesome street style w
 
 ## Related Posts
 
-- [outfits for high schoolers](https://teen.allwomenstalk.com/styles-to-try-in-high-school/)
-- [how to express yourself through fashion](https://fashion.allwomenstalk.com/ways-to-use-fashion-to-express-your-best-self/)
 - [how to style a lace tank top](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-lace-trend/)
-- [customize a denim jacket](https://diy.allwomenstalk.com/cool-ways-to-customize-denim/)
-- [how to be fashionable on a budget](https://fashion.allwomenstalk.com/tips-on-how-to-look-fashionable-on-a-budget/)
-- [outfit ripped jeans](https://streetstyle.allwomenstalk.com/street-style-outfit-ideas-with-ripped-jeans-that-youll-have-fun-recreating/)
-- [best fashion icons](https://fashion.allwomenstalk.com/style-tips-inspired-by-classic-fashion-icons/)
 - [sewing without a pattern](https://diy.allwomenstalk.com/tips-for-sewing-without-patterns/)
-- [tank top and skirt outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-muscle-tank/)
+- [outfit ripped jeans](https://streetstyle.allwomenstalk.com/street-style-outfit-ideas-with-ripped-jeans-that-youll-have-fun-recreating/)
+- [customize a denim jacket](https://diy.allwomenstalk.com/cool-ways-to-customize-denim/)
 - [emma stone star style](https://celebs.allwomenstalk.com/ways-to-steal-emma-stones-signature-style/)
+- [how to be fashionable on a budget](https://fashion.allwomenstalk.com/tips-on-how-to-look-fashionable-on-a-budget/)
+- [outfits for high schoolers](https://teen.allwomenstalk.com/styles-to-try-in-high-school/)
+- [tank top and skirt outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-muscle-tank/)
+- [how to express yourself through fashion](https://fashion.allwomenstalk.com/ways-to-use-fashion-to-express-your-best-self/)
+- [best fashion icons](https://fashion.allwomenstalk.com/style-tips-inspired-by-classic-fashion-icons/)
 - [7 Street Style Inspired Ways to Wear a Suit ...](https://streetstyle.allwomenstalk.com/street-style-inspired-ways-to-wear-a-suit/)
 - [7 Streetstyle Ways to Wear Layers and Rock It ...](https://streetstyle.allwomenstalk.com/streetstyle-ways-to-wear-layers-and-rock-it/)
 

@@ -68,16 +68,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [how to dress nice](https://fashion.allwomenstalk.com/easy-ways-to-start-dressing-nicer-rather-than-living-in-sweatpants/)
-- [summer themed clothes](https://fashion.allwomenstalk.com/ways-to-reuse-summer-clothes-during-winter/)
-- [floral printed handbags](https://fashion.allwomenstalk.com/wonderful-ways-to-wear-floral-print/)
-- [fearne cotton wedding dress copy](https://fashion.allwomenstalk.com/fearne-cotton-looks-that-you-need-to-copy/)
-- [stylish diy old clothes ideas](https://diy.allwomenstalk.com/easy-ways-to-update-your-old-clothes-with-dye/)
 - [leapord print pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leopard-print-like-a-wild-cat/)
+- [stylish diy old clothes ideas](https://diy.allwomenstalk.com/easy-ways-to-update-your-old-clothes-with-dye/)
 - [street makeup look](https://streetstyle.allwomenstalk.com/eye-catching-colourful-street-style-looks-you-can-recreate/)
-- [how to add more color to your wardrobe](https://fashion.allwomenstalk.com/fashiontastic-ways-to-add-blue-to-your-wardrobe/)
-- [black bralette under blazer](https://fashion.allwomenstalk.com/everyday-ways-to-own-the-leather-look/)
+- [fearne cotton wedding dress copy](https://fashion.allwomenstalk.com/fearne-cotton-looks-that-you-need-to-copy/)
+- [floral printed handbags](https://fashion.allwomenstalk.com/wonderful-ways-to-wear-floral-print/)
 - [how to learn to make your own clothes](https://diy.allwomenstalk.com/tips-for-making-your-own-clothes/)
+- [black bralette under blazer](https://fashion.allwomenstalk.com/everyday-ways-to-own-the-leather-look/)
+- [how to add more color to your wardrobe](https://fashion.allwomenstalk.com/fashiontastic-ways-to-add-blue-to-your-wardrobe/)
+- [summer themed clothes](https://fashion.allwomenstalk.com/ways-to-reuse-summer-clothes-during-winter/)
+- [how to dress nice](https://fashion.allwomenstalk.com/easy-ways-to-start-dressing-nicer-rather-than-living-in-sweatpants/)
 - [13 Sweet DIY Maxi Skirts to Sew ...](https://lifestyle.allwomenstalk.com/sweet-diy-maxi-skirts-to-sew/)
 - [7 Sophisticated Ways to Wear Maxi Skirts ...](https://fashion.allwomenstalk.com/sophisticated-ways-to-wear-maxi-skirts/)
 

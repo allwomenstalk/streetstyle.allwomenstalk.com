@@ -44,16 +44,16 @@ What's your favorite accessory that you just can't live without?
 
 ## Related Posts
 
-- [calories in lemon meringue pie without crust](https://food.allwomenstalk.com/pies-that-are-highest-in-calories/)
-- [anna nicole exposed](https://lifestyle.allwomenstalk.com/signs-you-could-be-an-accidental-bully/)
 - [signs you are better off as friends](https://love.allwomenstalk.com/signs-youre-better-as-friends-than-as-a-couple/)
-- [awkward youre welcome gif](https://funny.allwomenstalk.com/worst-everyday-situations-for-the-socially-awkward/)
-- [social media destroy real life communication essay](https://lifestyle.allwomenstalk.com/is-social-media-destroying-real-world-communication/)
 - [introvert or extrovert which one is better](https://lifestyle.allwomenstalk.com/introverts-vs-extroverts-which-one-are-you/)
-- [symbolic colours](https://lifestyle.allwomenstalk.com/colors-and-their-symbolic-meanings/)
-- [keiko warby parker](https://fashion.allwomenstalk.com/can-you-see-yourself-in-any-of-these-sexy-specs-for/)
-- [whats your face](https://beauty.allwomenstalk.com/the-face-shapes-whats-yours/)
+- [social media destroy real life communication essay](https://lifestyle.allwomenstalk.com/is-social-media-destroying-real-world-communication/)
+- [calories in lemon meringue pie without crust](https://food.allwomenstalk.com/pies-that-are-highest-in-calories/)
+- [awkward youre welcome gif](https://funny.allwomenstalk.com/worst-everyday-situations-for-the-socially-awkward/)
 - [small talk at parties](https://lifestyle.allwomenstalk.com/ways-to-feel-less-awkward-at-parties/)
+- [symbolic colours](https://lifestyle.allwomenstalk.com/colors-and-their-symbolic-meanings/)
+- [anna nicole exposed](https://lifestyle.allwomenstalk.com/signs-you-could-be-an-accidental-bully/)
+- [whats your face](https://beauty.allwomenstalk.com/the-face-shapes-whats-yours/)
+- [keiko warby parker](https://fashion.allwomenstalk.com/can-you-see-yourself-in-any-of-these-sexy-specs-for/)
 - [The Fashion Statement Your Shoes Make Today ...](https://allwomenstalk.com/fashion-statement-shoes-make-today/)
 - [Get the Rich Look by Accessorizing](https://allwomenstalk.com/get-the-rich-look-by-accessorizing/)
 

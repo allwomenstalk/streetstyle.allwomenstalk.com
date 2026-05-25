@@ -68,16 +68,16 @@ If street style trends are anything to go by, then the pink coat is definitely o
 
 ## Related Posts
 
+- [diy camo shirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-camouflage-prints/)
+- [timeless fashion pieces](https://fashion.allwomenstalk.com/pieces-of-timeless-fashion-advice-that-you-should-follow/)
+- [neutral colors dress](https://fashion.allwomenstalk.com/ways-to-add-a-touch-of-color-to-a-neutral-outfit/)
+- [casual dress down](https://fashion.allwomenstalk.com/ways-to-wear-sequins-in-the-office/)
 - [best dressed](https://fashion.allwomenstalk.com/ways-to-be-the-best-dressed-always/)
-- [katy perry fashion style](https://fashion.allwomenstalk.com/ways-to-steal-katy-perrys-quirky-style/)
-- [what to wear when you are overweight](https://fashion.allwomenstalk.com/fashion-tips-on-what-to-wear-when-youve-gained-a-little-weight-recently/)
 - [triple patchwork jeans](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-patchwork-denim/)
 - [trend jewel pizza](https://fashion.allwomenstalk.com/ways-to-rock-the-jewel-tone-trend/)
-- [diy camo shirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-camouflage-prints/)
-- [casual dress down](https://fashion.allwomenstalk.com/ways-to-wear-sequins-in-the-office/)
 - [extreme wardrobe malfunctions](https://fashion.allwomenstalk.com/embarrassing-wardrobe-malfunctions-and-how-to-avoid-them/)
-- [neutral colors dress](https://fashion.allwomenstalk.com/ways-to-add-a-touch-of-color-to-a-neutral-outfit/)
-- [timeless fashion pieces](https://fashion.allwomenstalk.com/pieces-of-timeless-fashion-advice-that-you-should-follow/)
+- [katy perry fashion style](https://fashion.allwomenstalk.com/ways-to-steal-katy-perrys-quirky-style/)
+- [what to wear when you are overweight](https://fashion.allwomenstalk.com/fashion-tips-on-what-to-wear-when-youve-gained-a-little-weight-recently/)
 - [9 Fab Fashion Tips for Winter ...](https://fashion.allwomenstalk.com/fab-fashion-tips-for-winter/)
 - [9 Trendy Coat Styles for This Fall ...](https://fashion.allwomenstalk.com/trendy-coat-styles-for-this-fall/)
 

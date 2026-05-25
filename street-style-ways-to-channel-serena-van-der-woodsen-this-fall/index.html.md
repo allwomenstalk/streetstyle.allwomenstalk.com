@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many cool street style ways
 
 ## Related Posts
 
-- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
-- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
-- [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
-- [girls looking good](https://streetstyle.allwomenstalk.com/girls-on-bikes-looking-good-street-style/)
-- [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
 - [fall magazine covers](https://fashion.allwomenstalk.com/these-controversial-fashion-magazine-covers-will-make-you-gasp/)
-- [most influential person in fashion](https://fashion.allwomenstalk.com/most-influential-people-in-fashion/)
-- [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
 - [are chokers appropriate for work](https://jewelry.allwomenstalk.com/hot-trend-alert-rock-a-backwards-choker-like-your-fave-celeb/)
+- [kim kardashian classy](https://fashion.allwomenstalk.com/times-we-loved-kim-kardashian-wests-evolving-style/)
+- [weird runway outfits](https://fashion.allwomenstalk.com/wait-till-you-see-these-bizarre-runway-pictures/)
 - [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
+- [lily collins audrey hepburn photoshoot](https://fashion.allwomenstalk.com/times-you-wanted-to-steal-lily-collinss-style/)
+- [taylor swift easy outfits](https://celebs.allwomenstalk.com/times-we-wanted-to-copy-taylor-swifts-outfits/)
+- [girls looking good](https://streetstyle.allwomenstalk.com/girls-on-bikes-looking-good-street-style/)
+- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
+- [most influential person in fashion](https://fashion.allwomenstalk.com/most-influential-people-in-fashion/)
 - [7 Ways to Style Those Sneakers This Season ...](https://shoes.allwomenstalk.com/ways-to-style-those-sneakers-this-season/)
 - [7 Neutral Fashion Ideas That Are Hot This Fall Sea...](https://fashion.allwomenstalk.com/neutral-fashion-ideas-that-are-hot-this-fall-season/)
 

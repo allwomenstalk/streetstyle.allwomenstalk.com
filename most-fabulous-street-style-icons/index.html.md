@@ -68,16 +68,16 @@ These are just a few of the most popular fixtures on street style blogs today. M
 
 ## Related Posts
 
-- [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
+- [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
+- [how to style printed pants](https://streetstyle.allwomenstalk.com/fabulous-street-style-takes-on-statement-pants/)
+- [yves saint laurent muses](https://fashion.allwomenstalk.com/beautiful-designer-muses-that-you-should-know-about/)
 - [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
+- [lady gagas dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
+- [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
+- [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
 - [list of fashion icons](https://fashion.allwomenstalk.com/amazing-fashion-icons-whose-style-will-inspire-your-closet/)
 - [zooey deschanel style dresses](https://fashion.allwomenstalk.com/super-trendy-and-fun-zooey-deschanel-looks-to-steal/)
 - [miley cyrus ge](https://fashion.allwomenstalk.com/key-looks-in-the-miley-cyrus-style-revolution/)
-- [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
-- [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
-- [lady gagas dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
-- [how to style printed pants](https://streetstyle.allwomenstalk.com/fabulous-street-style-takes-on-statement-pants/)
-- [yves saint laurent muses](https://fashion.allwomenstalk.com/beautiful-designer-muses-that-you-should-know-about/)
 - [10 Best Street Fashion Blogs ...](https://fashion.allwomenstalk.com/best-street-fashion-blogs/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)
 

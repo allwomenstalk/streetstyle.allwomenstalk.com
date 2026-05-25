@@ -56,16 +56,16 @@ These are just a few tartan street style looks that we’ve spotted. What are yo
 
 ## Related Posts
 
-- [leather jacket summer](https://fashion.allwomenstalk.com/unique-takes-on-the-leather-biker-jacket-trend/)
 - [womens essential accessories](https://fashion.allwomenstalk.com/fashion-accessories-all-besties-love/)
-- [7 jeans a pocket](https://fashion.allwomenstalk.com/best-brands-of-jeans-that-are-sure-to-last/)
 - [what to wear at a football game](https://fashion.allwomenstalk.com/must-have-pieces-of-clothing-accessories-to-wear-to-a-football-game/)
+- [7 jeans a pocket](https://fashion.allwomenstalk.com/best-brands-of-jeans-that-are-sure-to-last/)
 - [things every teen girl needs](https://fashion.allwomenstalk.com/essential-items-every-teen-should-have-in-their-closet/)
-- [truly 4 you skirts](https://fashion.allwomenstalk.com/full-midi-skirts-that-will-have-you-working-this-seasons-ladylike-trend/)
-- [katie ermilio](https://fashion.allwomenstalk.com/awesome-ready-to-wear-collections-i-want-right-now/)
 - [skinny leg cartoon characters](https://fashion.allwomenstalk.com/fun-fashion-ideas-based-on-cartoon-characters/)
 - [sweater and mini skirt outfit](https://streetstyle.allwomenstalk.com/cute-skirt-and-sweater-street-style-combinations/)
 - [french party ideas](https://fashion.allwomenstalk.com/lovely-paris-themed-clothing-finds-that-are-tres-chic/)
+- [katie ermilio](https://fashion.allwomenstalk.com/awesome-ready-to-wear-collections-i-want-right-now/)
+- [leather jacket summer](https://fashion.allwomenstalk.com/unique-takes-on-the-leather-biker-jacket-trend/)
+- [truly 4 you skirts](https://fashion.allwomenstalk.com/full-midi-skirts-that-will-have-you-working-this-seasons-ladylike-trend/)
 - [7 Scarf Styles for Fall ...](https://allwomenstalk.com/7-scarf-styles-for-fall/)
 - [7 Versatile Pieces You Need in Your Wardrobe for F...](https://fashion.allwomenstalk.com/versatile-pieces-you-need-in-your-wardrobe-for-fall/)
 

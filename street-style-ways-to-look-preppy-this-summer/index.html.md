@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many awesome street style w
 
 ## Related Posts
 
-- [casual concert outfit](https://streetstyle.allwomenstalk.com/street-style-outfits-for-your-next-summer-concert/)
 - [street style casual summer outfits](https://streetstyle.allwomenstalk.com/street-style-outfits-for-the-beach/)
-- [adorable dresses](https://fashion.allwomenstalk.com/adorable-summer-dresses-to-slip-into-this-summer/)
 - [outfit sporty](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-sporty-chic-this-summer/)
-- [types of animal print](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-animal-print-this-summer/)
-- [articles of clothing](https://fashion.allwomenstalk.com/summer-articles-of-clothing-that-will-get-you-through-fall/)
-- [styleways dress](https://streetstyle.allwomenstalk.com/street-style-ways-you-can-wear-summer-clothes-in-the-fall/)
 - [diy fashion projects](https://streetstyle.allwomenstalk.com/street-style-diy-fashion-projects-for-this-summer/)
-- [famous burger  teriyaki sandwich photos](https://food.allwomenstalk.com/bodacious-burgers-to-make-your-mouth-water/)
+- [articles of clothing](https://fashion.allwomenstalk.com/summer-articles-of-clothing-that-will-get-you-through-fall/)
 - [loreal paris color riche stylo skirt](https://fashion.allwomenstalk.com/structured-skirts-to-give-your-summertime-outfits-some-extra-edge/)
+- [types of animal print](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-animal-print-this-summer/)
+- [casual concert outfit](https://streetstyle.allwomenstalk.com/street-style-outfits-for-your-next-summer-concert/)
+- [famous burger  teriyaki sandwich photos](https://food.allwomenstalk.com/bodacious-burgers-to-make-your-mouth-water/)
+- [adorable dresses](https://fashion.allwomenstalk.com/adorable-summer-dresses-to-slip-into-this-summer/)
+- [styleways dress](https://streetstyle.allwomenstalk.com/street-style-ways-you-can-wear-summer-clothes-in-the-fall/)
 - [7 Stylish Ways to Wear Your Hair This Summer ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-summer/)
 - [7 Street Style Inspired Ways to Wear a Suit ...](https://streetstyle.allwomenstalk.com/street-style-inspired-ways-to-wear-a-suit/)
 

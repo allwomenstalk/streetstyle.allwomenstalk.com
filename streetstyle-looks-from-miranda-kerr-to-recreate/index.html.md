@@ -56,15 +56,15 @@ Well, there you have it! These are just seven out of many awesome street style l
 
 ## Related Posts
 
-- [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
-- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
 - [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
-- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
-- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
-- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
-- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
-- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
+- [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
 - [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
+- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
+- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
+- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
+- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
+- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
 - [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
 - [7 Beach Fashion Looks to Steal ...](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
 - [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)

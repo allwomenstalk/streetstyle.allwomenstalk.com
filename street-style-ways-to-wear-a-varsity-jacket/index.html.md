@@ -68,16 +68,16 @@ These are just some street style ways to wear the varsity jacket. What do you th
 
 ## Related Posts
 
-- [revamp my wardrobe](https://fashion.allwomenstalk.com/ways-to-revamp-your-college-wardrobe-for-the-real-world/)
-- [how to age a jacket](https://diy.allwomenstalk.com/diy-ways-to-update-an-old-jacket/)
-- [new year makeover](https://lifestyle.allwomenstalk.com/ways-to-makeover-your-closet-for-the-new-year/)
 - [styling crop sweater](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-crop-tops/)
-- [style on a budget](https://fashion.allwomenstalk.com/top-tips-for-dressing-with-style-on-a-low-budget/)
-- [what to wear with houndstooth pants](https://fashion.allwomenstalk.com/haute-ways-to-wear-houndstooth/)
-- [is tartan in fashion](https://fashion.allwomenstalk.com/cool-ways-to-wear-the-tartan-trend-this-season/)
 - [1960s glamour fashion](https://fashion.allwomenstalk.com/ways-to-add-some-60s-glamour-to-your-day-to-day-wardrobe/)
-- [fashion stylist tips](https://lifestyle.allwomenstalk.com/insider-tips-for-becoming-a-fashion-stylist/)
+- [how to age a jacket](https://diy.allwomenstalk.com/diy-ways-to-update-an-old-jacket/)
+- [what to wear with houndstooth pants](https://fashion.allwomenstalk.com/haute-ways-to-wear-houndstooth/)
+- [revamp my wardrobe](https://fashion.allwomenstalk.com/ways-to-revamp-your-college-wardrobe-for-the-real-world/)
 - [denim shirt womens outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-classic-denim-shirt/)
+- [fashion stylist tips](https://lifestyle.allwomenstalk.com/insider-tips-for-becoming-a-fashion-stylist/)
+- [is tartan in fashion](https://fashion.allwomenstalk.com/cool-ways-to-wear-the-tartan-trend-this-season/)
+- [new year makeover](https://lifestyle.allwomenstalk.com/ways-to-makeover-your-closet-for-the-new-year/)
+- [style on a budget](https://fashion.allwomenstalk.com/top-tips-for-dressing-with-style-on-a-low-budget/)
 - [7 on-Trend Ways to Style a Varsity Jacket ...](https://fashion.allwomenstalk.com/on-trend-ways-to-style-a-varsity-jacket/)
 - [7 Ways to Wear Puffer Jackets Stylishly ...](https://fashion.allwomenstalk.com/ways-to-wear-puffer-jackets-stylishly/)
 

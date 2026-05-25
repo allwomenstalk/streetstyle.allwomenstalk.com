@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many awesome ways that you 
 
 ## Related Posts
 
-- [plaid shirt street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-the-plaid-trend-this-spring/)
-- [shoes to wear with long socks](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-knee-high-socks/)
-- [minimalist trend](https://fashion.allwomenstalk.com/ways-to-master-the-minimalist-trend/)
-- [how to style chambray shirt](https://fashion.allwomenstalk.com/ways-to-wear-chambray-shirts/)
 - [pop rock outfit ideas](https://streetstyle.allwomenstalk.com/street-style-outfits-with-denim-shorts-to-recreate/)
 - [fashion trends 80s](https://fashion.allwomenstalk.com/ways-to-wear-80s-fashion-trends-in-a-modern-way/)
-- [green top white pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-white-pants-this-spring/)
-- [diy creative jeans](https://diy.allwomenstalk.com/ways-to-update-old-jeans/)
-- [how to wear a crop top if youre curvy](https://fashion.allwomenstalk.com/tips-on-how-to-wear-crop-tops-no-matter-what-your-body-shape/)
+- [shoes to wear with long socks](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-knee-high-socks/)
 - [preppy schoolgirl outfit](https://fashion.allwomenstalk.com/grown-up-ways-to-wear-the-preppy-trend/)
+- [diy creative jeans](https://diy.allwomenstalk.com/ways-to-update-old-jeans/)
+- [how to style chambray shirt](https://fashion.allwomenstalk.com/ways-to-wear-chambray-shirts/)
+- [minimalist trend](https://fashion.allwomenstalk.com/ways-to-master-the-minimalist-trend/)
+- [how to wear a crop top if youre curvy](https://fashion.allwomenstalk.com/tips-on-how-to-wear-crop-tops-no-matter-what-your-body-shape/)
+- [green top white pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-white-pants-this-spring/)
+- [plaid shirt street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-rock-the-plaid-trend-this-spring/)
 - [8 Ways to Wear Metallics ...](https://allwomenstalk.com/8-ways-to-wear-metallics/)
 - [7 Ways to Wear the Most Glamorous Trends ...](https://allwomenstalk.com/7-ways-to-wear-the-most-glamorous-trends/)
 

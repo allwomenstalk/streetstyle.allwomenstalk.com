@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many types of sunglasses th
 
 ## Related Posts
 
-- [rock band outfits female](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-rocker-chic-this-summer/)
-- [summer boho styles](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-boho-chic-this-summer/)
-- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
-- [spring dresses teen](https://teen.allwomenstalk.com/spring-dresses-for-teens-to-soak-up-the-sun/)
-- [gwen stefani street style](https://celebs.allwomenstalk.com/celebrity-summer-street-style-inspirations-that-are-absolutely-beautiful/)
+- [pinnafore](https://fashion.allwomenstalk.com/playful-pinafores-to-wear-this-season/)
 - [eco fashion dress](https://fashion.allwomenstalk.com/eco-friendly-summer-dresses-to-stock-up-on/)
 - [linen blend summer bedding](https://lifestyle.allwomenstalk.com/pretty-summer-bed-linen-sets-to-brighten-up-your-space/)
-- [pinnafore](https://fashion.allwomenstalk.com/playful-pinafores-to-wear-this-season/)
+- [rock band outfits female](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-rocker-chic-this-summer/)
+- [spring dresses teen](https://teen.allwomenstalk.com/spring-dresses-for-teens-to-soak-up-the-sun/)
+- [gwen stefani street style](https://celebs.allwomenstalk.com/celebrity-summer-street-style-inspirations-that-are-absolutely-beautiful/)
+- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
 - [rockin hair](https://hair.allwomenstalk.com/rockin-hair-accessories-for-summer/)
 - [pastel hair dye](https://hair.allwomenstalk.com/awesome-pastel-hair-colors-to-try-out-this-summer/)
+- [summer boho styles](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-boho-chic-this-summer/)
 - [7 Amazing Marc Jacobs Sunglasses ...](https://fashion.allwomenstalk.com/amazing-marc-jacobs-sunglasses/)
 - [7 Cool Sunglasses for Your New Look ...](https://fashion.allwomenstalk.com/cool-sunglasses-for-your-new-look/)
 

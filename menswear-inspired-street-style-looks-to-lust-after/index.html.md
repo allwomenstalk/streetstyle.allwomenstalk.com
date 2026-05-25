@@ -56,16 +56,16 @@ If you're feeling like you need a break from the girlie part of your wardrobe, p
 
 ## Related Posts
 
-- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
 - [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
+- [bad blood costumes](https://celebs.allwomenstalk.com/these-style-stars-killed-it-in-the-bad-blood-music-video/)
+- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
+- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
+- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
 - [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
 - [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
-- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
-- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
 - [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
 - [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
-- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)
 - [5 Menswear-Inspired Style Inspirations ...](https://allwomenstalk.com/5-menswear-inspired-style-inspirations/)
 

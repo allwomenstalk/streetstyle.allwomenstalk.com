@@ -94,16 +94,16 @@ I need this in my life!
 
 ## Related Posts
 
-- [makeovers with elizabeth taylor](https://celebs.allwomenstalk.com/fashion-formulas-inspired-by-old-hollywood-celebs/)
-- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
-- [dakota johnson outfits](https://celebs.allwomenstalk.com/street-style-outfits-to-steal-from-dakota-johnson/)
-- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
-- [famous moms](https://fashion.allwomenstalk.com/famous-moms-who-know-all-about-fashion/)
 - [kendall jenner best looks](https://celebs.allwomenstalk.com/a-look-at-kendall-jenners-best-outfits-of/)
-- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
-- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
-- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
+- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
 - [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
+- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
+- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
+- [makeovers with elizabeth taylor](https://celebs.allwomenstalk.com/fashion-formulas-inspired-by-old-hollywood-celebs/)
+- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
+- [dakota johnson outfits](https://celebs.allwomenstalk.com/street-style-outfits-to-steal-from-dakota-johnson/)
+- [famous moms](https://fashion.allwomenstalk.com/famous-moms-who-know-all-about-fashion/)
+- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
 - [10 Celebri tee Looks That We Love ...](https://allwomenstalk.com/10-celebri-tee-looks-that-we-love/)
 - [10 of My Favorite Celebrity Style Icons ...](https://allwomenstalk.com/10-of-my-favorite-celebrity-style-icons/)
 

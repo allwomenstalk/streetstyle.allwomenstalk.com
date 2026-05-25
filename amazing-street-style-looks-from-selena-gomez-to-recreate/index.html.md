@@ -58,14 +58,14 @@ Well, there you have it! We all know Selena is quite the fashionista. I love how
 
 - [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
 - [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
-- [preppy tv shows](https://movies.allwomenstalk.com/fashionable-tv-shows-every-fashionista-needs-to-be-watching/)
-- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
 - [ashley benson look alike](https://streetstyle.allwomenstalk.com/street-style-looks-from-ashley-benson-that-are-totally-fab/)
-- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [kate middleton best outfits](https://fashion.allwomenstalk.com/of-kate-middletons-best-outfits-from-the-royal-tour/)
+- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
 - [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
 - [emma roberts look](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-emma-roberts/)
-- [kate middleton best outfits](https://fashion.allwomenstalk.com/of-kate-middletons-best-outfits-from-the-royal-tour/)
 - [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
+- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [preppy tv shows](https://movies.allwomenstalk.com/fashionable-tv-shows-every-fashionista-needs-to-be-watching/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)
 - [10 Cool Celebrity Street Style Looks ...](https://celebs.allwomenstalk.com/cool-celebrity-street-style-looks/)
 

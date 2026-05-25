@@ -68,14 +68,14 @@ These are a few trends that tend to mostly exist on street style blogs. Once the
 
 ## Related Posts
 
-- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
-- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
-- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
-- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
-- [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
 - [preppy tv shows](https://movies.allwomenstalk.com/fashionable-tv-shows-every-fashionista-needs-to-be-watching/)
-- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
 - [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
+- [jessica alba body type](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-jessica-alba/)
+- [vanessa hudgens looks](https://streetstyle.allwomenstalk.com/delightful-street-style-looks-from-vanessa-hudgens/)
+- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
+- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
+- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
 - [crisda rodriguez designer](https://fashion.allwomenstalk.com/fashion-models-turned-fashion-designers/)
 - [easy taylor swift outfits](https://streetstyle.allwomenstalk.com/fab-street-style-looks-from-taylor-swift-to-recreate-this-spring/)
 - [10 Best Street Fashion Blogs ...](https://fashion.allwomenstalk.com/best-street-fashion-blogs/)

@@ -56,15 +56,15 @@ Well, there you have it! These are just seven out of many Gossip Girl street sty
 
 ## Related Posts
 
-- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
-- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
-- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
-- [paris color stylo hollywood icon](https://fashion.allwomenstalk.com/of-olivia-palermos-best-looks-that-prove-shes-a-style-icon/)
-- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
-- [cool clothes for musicians](https://fashion.allwomenstalk.com/musicians-with-their-own-clothing-lines/)
-- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
 - [miranda kerr stockings](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-miranda-kerr-to-recreate/)
+- [paris color stylo hollywood icon](https://fashion.allwomenstalk.com/of-olivia-palermos-best-looks-that-prove-shes-a-style-icon/)
+- [katie cassidy skinny](https://streetstyle.allwomenstalk.com/street-style-outfits-from-katie-cassidy-that-are-totally-fab/)
+- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
+- [cool clothes for musicians](https://fashion.allwomenstalk.com/musicians-with-their-own-clothing-lines/)
+- [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
 - [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
+- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
+- [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
 - [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
 - [7 Beach Fashion Looks to Steal ...](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
 - [7 Books to Take Fashion Inspiration from ...](https://fashion.allwomenstalk.com/books-to-take-fashion-inspiration-from/)
