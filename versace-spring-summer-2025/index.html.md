@@ -3,7 +3,7 @@ title: "What Makes Versace’s Protea Style So Captivating..."
 description: "The Suede Sensation: A Jacket Like No Other; Meet the Protea Shoulder Bag: A Floral Fantasy; Embrace Your Unique Style with Versace; A Little About Versace’s Legacy; More ..."
 url: "https://streetstyle.allwomenstalk.com/versace-spring-summer-2025/"
 category: "fashion"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # What Makes Versace’s Protea Style So Captivating...

@@ -3,7 +3,7 @@ title: "Why the Pastel Coquette Aesthetic is Captivating Us All..."
 description: "The Enchanting Pastel Coquette Vibe; A Closer Look at the Design; Behind the Scenes: How It's Done; The Appeal of DND Gel; Are You Ready to Embrace This Trend?; More ..."
 url: "https://streetstyle.allwomenstalk.com/pastel-coquette-nail-art/"
 category: "streetstyle"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Why the Pastel Coquette Aesthetic is Captivating Us All...
