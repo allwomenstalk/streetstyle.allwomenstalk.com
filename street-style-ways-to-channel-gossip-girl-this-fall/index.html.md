@@ -3,7 +3,7 @@ title: "7 Street Style Ways to Channel Gossip Girl This Fall ..."
 description: "Georgina's Statement Scarf; Blair's Cape/jacket; Serena's Trench Coat; Jenny's Rocker Style; Blair's Preppy Chic Look; More ..."
 url: "https://streetstyle.allwomenstalk.com/street-style-ways-to-channel-gossip-girl-this-fall/"
 category: "streetstyle"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Street Style Ways to Channel Gossip Girl This Fall ...
@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many awesome ways to channe
 
 ## Related Posts
 
-- [two piece combo](https://fashion.allwomenstalk.com/wear-a-matching-two-piece-combo-with-some-celeb-inspo/)
-- [are chokers appropriate for work](https://jewelry.allwomenstalk.com/hot-trend-alert-rock-a-backwards-choker-like-your-fave-celeb/)
-- [airport outfits inspo](https://fashion.allwomenstalk.com/a-collection-of-celebs-best-airport-outfits-to-inspire-your-travel-wardrobe/)
+- [most influential person in fashion](https://fashion.allwomenstalk.com/most-influential-people-in-fashion/)
 - [girls looking good](https://streetstyle.allwomenstalk.com/girls-on-bikes-looking-good-street-style/)
+- [serena van der woodsen outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-channel-serena-van-der-woodsen-this-fall/)
+- [two piece combo](https://fashion.allwomenstalk.com/wear-a-matching-two-piece-combo-with-some-celeb-inspo/)
 - [loreal paris color riche le stylo shadow skirt](https://streetstyle.allwomenstalk.com/street-style-business-chic-looks-to-recreate-this-fall/)
 - [ariana grande red wig](https://fashion.allwomenstalk.com/times-ariana-grande-proved-shes-a-fashion-queen/)
+- [are chokers appropriate for work](https://jewelry.allwomenstalk.com/hot-trend-alert-rock-a-backwards-choker-like-your-fave-celeb/)
 - [what is denise bidot size](https://beauty.allwomenstalk.com/plus-size-model-shares-insight-you-are-never-going-to-please-everyone/)
-- [most influential person in fashion](https://fashion.allwomenstalk.com/most-influential-people-in-fashion/)
+- [airport outfits inspo](https://fashion.allwomenstalk.com/a-collection-of-celebs-best-airport-outfits-to-inspire-your-travel-wardrobe/)
 - [festival ourfits](https://fashion.allwomenstalk.com/steal-her-style-blake-livelys-latest-pregnancy-style-is-too-cute/)
-- [serena van der woodsen outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-channel-serena-van-der-woodsen-this-fall/)
 - [7 Gossip Girl Moments You Can Learn from and Love ...](https://lifestyle.allwomenstalk.com/gossip-girl-moments-you-can-learn-from-and-love/)
 - [7 Street Style Trends for Spring 2013 ...](https://fashion.allwomenstalk.com/street-style-trends-for-spring/)
 
